@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Console Modding, Customized Windows Installs**
 
-- 📫 How to reach me **aero#2603 on discord**
+- 📫 How to reach me **aeroix on discord**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
